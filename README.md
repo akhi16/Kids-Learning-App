@@ -1,0 +1,2 @@
+# Kids-Learning-App
+When you are looking a simple way to make your kid learn  to alphabet, shapes, counting, color’s name ,flower’s name ,fruit’s name , week’s name, season’s name , month’s name ,this app comes as one of the best options. Children will enjoy math if it is introduced to them at an early age using basic principles .From this app children can learn number counting, summation ,subtraction ,division and multiplication. This app is incredibly effective and fun.
